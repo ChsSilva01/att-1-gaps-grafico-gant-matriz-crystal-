@@ -1,1 +1,0 @@
-# att-1-gaps-grafico-gant-matriz-crystal-
